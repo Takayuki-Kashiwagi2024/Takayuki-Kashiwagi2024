@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Takachang2024kswg
+- 👋 Hi, I’m @takachang2024kswg
 - 👀 I’m interested in music
 - 🌱 I’m currently learning programing
 - 💞️ I’m looking to collaborate on society
